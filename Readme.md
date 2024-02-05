@@ -1,1 +1,1 @@
-palmeiras n tem mundial
+palmeiras não tem mundial
